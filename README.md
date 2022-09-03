@@ -1,0 +1,2 @@
+# GORKEM
+Sıkıldım 
